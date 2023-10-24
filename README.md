@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @amandanayara03
 - 👀 I’m interested in seguir o meu foco nos estudos 
-- 🌱 I’m currently learning como mecher no github
+- 🌱 I’m currently learning como mexer no github
 - 💞️ I’m looking to collaborate on em uma boa educação 
 - 📫  to reach me via email 
 
